@@ -1,0 +1,1 @@
+In shopping money is a very important factor. It is important to manage your budget and spend wisely.

@@ -1,0 +1,1 @@
+print("Shopping is really fun!s")
